@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+*
+- Limón con aceite 🍋
+- Ceviche de tiburón 🦈
+- Patricio Estrella ⭐
+  - Bob Esponja 🍍
