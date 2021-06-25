@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+_Si la vida te de **limones** 🍋, haz **limonada**_ No se quíen lo dijo 😄
